@@ -1,1 +1,0 @@
-# ayumiohashi.github.io
